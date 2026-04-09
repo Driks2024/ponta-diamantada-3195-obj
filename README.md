@@ -1,0 +1,1 @@
+# ponta-diamantada-3195-obj
